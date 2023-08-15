@@ -1,1 +1,1 @@
-# Acesse [aqui](https://numero-secreto-lemon-xi.vercel.app/) o jogo!
+# Acesse [aqui](https://numero-secreto-omega-wheat.vercel.app/) o jogo!
